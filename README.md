@@ -1,3 +1,3 @@
 # ssychie.github.io
-Kc Julianne Rebaya
+## Kc Julianne Rebaya
 *i love theodore nott*
