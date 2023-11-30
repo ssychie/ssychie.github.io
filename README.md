@@ -1,6 +1,6 @@
-# ssychie.github.io
+# An introduction to the Ravenclaw House
 ## Kc Julianne Rebaya
 
 *i love theodore nott*
 
-An introduction to the Ravenclaw House
+
